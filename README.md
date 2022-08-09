@@ -1,2 +1,0 @@
-# NCU Summer Training
-
